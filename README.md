@@ -1,1 +1,0 @@
-# sigma-cat-web-site
